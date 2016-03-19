@@ -1,4 +1,4 @@
-# Link to My Fb account
+# Link to My Fb page
 
 
-[My fb](https://facebook.com/mhasan91)
+[My Page](https://facebook.com/bestofummah)
